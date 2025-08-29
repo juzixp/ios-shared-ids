@@ -30,9 +30,6 @@
 
 👉 **访问我们的共享平台**：[docs.applexp.com](https://docs.applexp.com/free-accounts/Shadowrocket)
 
-👉 **购买独享账号（小火箭独享账号，苹果各国ID，等各类账号）[【点击进入购买】](https://juzixp.com/)**
-
-👉 **购买共享账号地址：[【 点击进入购买】](https://juzixp.com/buy/21)**
 
 网站特色：
 - 账号信息每日更新
